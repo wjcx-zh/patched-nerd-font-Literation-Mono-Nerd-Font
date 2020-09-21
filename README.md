@@ -1,0 +1,1 @@
+# patched-nerd-font-Literation-Mono-Nerd-Font
